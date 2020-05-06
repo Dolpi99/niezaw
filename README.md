@@ -1,0 +1,2 @@
+# niezaw
+Nie zaglondaj
